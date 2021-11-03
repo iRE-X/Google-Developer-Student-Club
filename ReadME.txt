@@ -18,4 +18,9 @@ BEFORE PLAY THE GAME :
  
  
  NOW you are ready to go..... Enjoy the Game !!
+ 
+ 
+ DON'T Delete any Files, It may cause error in the Game
+ Join our Discord Server : https://discord.com/invite/FM4RVJNM
+ Subscribe to Our YouTube Channel : https://www.youtube.com/channel/UCjii5xIHjIfNw6i5iUhWQag
                       
